@@ -3,7 +3,7 @@
 
 
 
-I have had to read this manual several times
+I have had to read this manual many times
 
 test the GitHub according to the guide start GitHub
 Silvia here, I like to learn skills helping me to save my time.
